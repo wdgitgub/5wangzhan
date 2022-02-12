@@ -1,6 +1,6 @@
 <!-- _coverpage.md -->
 
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcT8lEZyYBzqDkDbdnmIEpjn6WQdmQJ-q4AGvsY77GTsB_mac3KisFBfYjEEz4t_Mnx9Ehc&usqp=CAU)
+
 
 # **≡ SHUAI FAN**
 ## & 主页 Home Page
